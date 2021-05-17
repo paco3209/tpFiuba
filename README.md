@@ -8,8 +8,11 @@ Prof. Argerich , Luis
 Integrantes:
 
 Luz Fox
+
 Francisco Luna
+
 Francisco Talenti
+
 Federico Krell
 
 
